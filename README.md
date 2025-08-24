@@ -27,7 +27,7 @@
    - Serving registration and document completion
    - Resolving customer problems
    - Increasing service and number of customers
-#### 3. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | IT and Administration | Padangsidimpuan `Dec'2021-2022`
+#### 3. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | Administrative Officer | Padangsidimpuan `Dec'2021-2022`
    - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
    - Responsible to improve and realize project delivery as timeline
    - Create Automation Excel for day-to-day routine
