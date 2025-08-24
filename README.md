@@ -22,7 +22,7 @@
    - Analyze company performance
    - Plan a structured system
    - Manage company finances and risks
-#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | Customer Service Assistant | Sibolga `Februari-April'2024`
+#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | Volunteer | Sibolga `Februari-April'2024`
    - Building relationships with customers
    - Serving registration and document completion
    - Resolving customer problems
