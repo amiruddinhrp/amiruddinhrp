@@ -54,8 +54,8 @@
 [![website](./img/youtube-light.svg)](https://www.instagram.com/miru.hr00#gh-light-mode-only)
 [![website](./img/youtube-dark.svg)](https://www.instagram.com/miru.hr00#gh-dark-mode-only)
 &nbsp;&nbsp;
-[![website](./img/twitter-light.svg)](https://www.instagram.com/miru.hr00#gh-light-mode-only)
-[![website](./img/twitter-dark.svg)](https://www.instagram.com/miru.hr00#gh-dark-mode-only)
+[![website](./img/twitter-light.svg)](https://x.com/Amiruddinhrpp#gh-light-mode-only)
+[![website](./img/twitter-dark.svg)](https://x.com/Amiruddinhrpp#gh-dark-mode-only)
 &nbsp;&nbsp;
 [![website](./img/linkedin-light.svg)](https://www.instagram.com/miru.hr00#gh-light-mode-only)
 [![website](./img/linkedin-dark.svg)](https://www.instagram.com/miru.hr00#gh-dark-mode-only)
