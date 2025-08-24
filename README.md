@@ -15,9 +15,6 @@
    - Public Relations Division Real Work Lecture
  #### 2. [SMK Swasta Kampus Padangsidimpuan](https://sekolah.data.kemdikbud.go.id/index.php/chome/profil/4dc2305d-6b55-4b3f-929b-699d73968567) | Computer Network Engineering | Padangsidimpuan `2018-2020`
    - Chairman of The Student Body
-#### 3. [MTsN 1 Model Padangsidimpuan](https://referensi.data.kemendikdasmen.go.id/pendidikan/npsn/10264605) | Padangsidimpuan `2015-2017`
-   - Head of Biology Extracurricular
-#### 2. [MIN 1 Padangsidimpuan](https://referensi.data.kemendikdasmen.go.id/pendidikan/npsn/60704109) | Padangsidimpan `2008-2014`
 
 ## Work Experience:
 #### 1. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | IT and Administration | Padangsidimpuan `Dec'2021-2022`
