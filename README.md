@@ -1,7 +1,7 @@
 # Hi there, I'm Amir - aka [Amiruddin](https://www.instagram.com/miru.hr00?igsh=MTBpYWlqNnE5ZWE1cQ%3D%3D) 👋
 ## About me:
 - 🔭 I’m currently working as Business Analyst
-- 🌱 I’m currently learning Python and Javascript
+- 🌱 I’m currently learning Python, SQL & Business Intelligence
 - 👯 I’m looking to collaborate as Data Automation and Analyst
 - 🤔 I’m looking for suggest for Rust Project Ideas
 - 💬 Ask me about anything
