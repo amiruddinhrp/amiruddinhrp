@@ -17,15 +17,21 @@
    - Chairman of The Student Body
 
 ## Work Experience:
-#### 1. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | IT and Administration | Padangsidimpuan `Dec'2021-2022`
-   - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
-   - Responsible to improve and realize project delivery as timeline
-   - Create Automation Excel for day-to-day routine
-#### 2. [Generasi Nusantara Convection](https://www.instagram.com/generasinusantaraconvection?igsh=MTR5NDNmaWFsd21oOA==) | Business Owner | Padangsidimpuan `2024-now`
+#### 1. [Generasi Nusantara Convection](https://www.instagram.com/generasinusantaraconvection?igsh=MTR5NDNmaWFsd21oOA==) | Business Owner | Padangsidimpuan `2024-now`
    - Company leader
    - Analyze company performance
    - Plan a structured system
    - Manage company finances and risks
+#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | Customer Service Assistant | Sibolga `Februari-April'2024`
+   - Building relationships with customers
+   - Serving registration and document completion
+   - Resolving customer problems
+   - Increasing service and number of customers
+#### 3. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | IT and Administration | Padangsidimpuan `Dec'2021-2022`
+   - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
+   - Responsible to improve and realize project delivery as timeline
+   - Create Automation Excel for day-to-day routine
+
 ## Achievements:
 #### 1. [The 1st Place Winner](https://febi.uinsyahada.ac.id/mahasiswa-febi-prodi-manajemen-keuangan-syariah-mks-uin-syahada-padangsidimpuan-raih-prestasi-gemilang-dalam-lomba-bisnis-plan-nasional-di-uin-sayyid-ali-rahmatullah-tulungagung/) | The National Business Plan Competition | Tulungagung `2024` | [Certificate](https://drive.google.com/file/d/1mkXAl8lqoeQoB7eisXS13eCEIE_42bpn/view?usp=sharing)
 #### 2. [The 3rd Place Winner](https://febi.uinsyahada.ac.id/2000-peserta-olimpiade-ekonomi-ramaikan-kegiatan-enterpreneurship-day/) | Highest Sales In The Entrepreneurship Day Event | Padangsidimpuan `2023` | [Certificate](https://drive.google.com/file/d/1mlYeDDLYjAX-CtroCcxq8vxnIUVTto1U/view?usp=sharing)
