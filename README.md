@@ -22,12 +22,12 @@
    - Analyze company performance
    - Plan a structured system
    - Manage company finances and risks
-#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | [Volunteer](https://drive.google.com/file/d/14KcBs9nMuIIr3ie30kOV0X7bss7xnCvo/view?usp=drive_link) | Sibolga `Februari-April'2024`
+#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | [Volunteer](https://drive.google.com/file/d/14KcBs9nMuIIr3ie30kOV0X7bss7xnCvo/view?usp=drive_link) | Sibolga `January-March'2024`
    - Building relationships with customers
    - Serving registration and document completion
    - Resolving customer problems
    - Increasing service and number of customers
-#### 3. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | Administrative Officer | Padangsidimpuan `Dec'2021-2022`
+#### 3. [PT. Raja Muda Group](https://www.ralali.com/v/rajamudagroup?order=match) | [Administrative Officer](https://drive.google.com/file/d/1ccAtI47nxX5VAplcQNIo-KV_QqWAizLy/view?usp=drive_link) | Padangsidimpuan `January-December'2021-2022`
    - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
    - Responsible to improve and realize project delivery as timeline
    - Create Automation Excel for day-to-day routine
