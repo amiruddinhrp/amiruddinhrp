@@ -17,12 +17,12 @@
    - Chairman of The Student Body
 
 ## Work Experience:
-#### 1. [Generasi Nusantara Convection](https://www.instagram.com/generasinusantaraconvection?igsh=MTR5NDNmaWFsd21oOA==) | Business Owner | Padangsidimpuan `2024-now`
+#### 1. [Mahasiswa Priority Padangsidimpuan](https://www.instagram.com/mahasiswa.priority.psp/?utm_source=ig_web_button_share_sheet) | Business Owner | Padangsidimpuan `2024-now`
    - Company leader
    - Analyze company performance
    - Plan a structured system
    - Manage company finances and risks
-#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | Volunteer | Sibolga `Februari-April'2024`
+#### 2. [PT. Bank Syariah Indonesia,Tbk](https://www.bankbsi.co.id/jaringan/1860) | [Volunteer](https://drive.google.com/file/d/14KcBs9nMuIIr3ie30kOV0X7bss7xnCvo/view?usp=drive_link) | Sibolga `Februari-April'2024`
    - Building relationships with customers
    - Serving registration and document completion
    - Resolving customer problems
