@@ -3,7 +3,7 @@
 - 🔭 I’m currently working as Business Analyst
 - 🌱 I’m currently learning Python, SQL & Business Intelligence
 - 👯 I’m looking to collaborate as Data Automation and Analyst
-- 🤔 I’m looking for suggest for Rust Project Ideas
+- 🤔 I’m looking for suggest for Project Ideas
 - 💬 Ask me about anything
 - 📫 How to reach me: amiruddinhrpp@gmail.com
 
