@@ -31,7 +31,9 @@
    - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
    - Responsible to improve and realize project delivery as timeline
    - Create Automation Excel for day-to-day routine
-
+#### 4. [PT. Amartha Mikro Fintek (Amartha)](https://amartha.com/) | [Business Partner](https://drive.google.com/file/d/1ccAtI47nxX5VAplcQNIo-KV_QqWAizLy/view?usp=drive_link) | Padangsidimpuan `February-Now'2026-Now`
+   - Mencari, mengakuisisi, dan mendampingi mitra (UMKM perempuan pedesaan) untuk mendapatkan permodalan
+   - Bertanggung jawab melakukan survei kelayakan, menagih angsuran mingguan, serta memastikan operasional lapangan sesuai SOP untuk meningkatkan kesejahteraan mitra
 ## Achievements:
 #### 1. [The 1st Place Winner](https://www.uinsyahada.ac.id/mahasiswa-prodi-manajemen-keuangan-syariah-raih-juara-pertama-di-ajang-perlombaan-nasional/) | The National Business Plan Competition | Tulungagung `2024` | [Certificate](https://drive.google.com/file/d/1mkXAl8lqoeQoB7eisXS13eCEIE_42bpn/view?usp=sharing)
 #### 2. [The 3rd Place Winner](https://febi.uinsyahada.ac.id/2000-peserta-olimpiade-ekonomi-ramaikan-kegiatan-enterpreneurship-day/) | Highest Sales In The Entrepreneurship Day Event | Padangsidimpuan `2023` | [Certificate](https://drive.google.com/file/d/1mlYeDDLYjAX-CtroCcxq8vxnIUVTto1U/view?usp=sharing)
