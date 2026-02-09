@@ -31,7 +31,7 @@
    - Integrate Accuracy Plan, Master Plan, HR Plan, and Recource Plan
    - Responsible to improve and realize project delivery as timeline
    - Create Automation Excel for day-to-day routine
-#### 4. [PT. Amartha Mikro Fintek (Amartha)](https://amartha.com/) | [Business Partner](https://drive.google.com/file/d/1ccAtI47nxX5VAplcQNIo-KV_QqWAizLy/view?usp=drive_link) | Padangsidimpuan `February-Now'2026-Now`
+#### 4. [PT. Amartha Mikro Fintek (Amartha)](https://amartha.com/) | [Business Partner](https://amartha.com/) | Padangsidimpuan `February-Now'2026-Now`
    - Mencari, mengakuisisi, dan mendampingi mitra (UMKM perempuan pedesaan) untuk mendapatkan permodalan
    - Bertanggung jawab melakukan survei kelayakan, menagih angsuran mingguan, serta memastikan operasional lapangan sesuai SOP untuk meningkatkan kesejahteraan mitra
 ## Achievements:
